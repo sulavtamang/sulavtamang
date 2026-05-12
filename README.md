@@ -37,7 +37,7 @@ I'm a **Software Developer** and **BIT Student** passionate about building robus
 
 ### Get In Touch
 *   **LinkedIn**: [Sulav Man Sing Tamang](https://www.linkedin.com/in/sulav-man-sing-tamang-269bb5190/)
-*   **Email**: [Your professional email address]
+*   **Email**: [sulavt218@gmail.com, xxsul4void@gmail.com]
 
 ---
 
